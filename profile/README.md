@@ -1,3 +1,3 @@
-## Hi there 👋
+## Hi there, we are CLIX Development! 👋
 
-Content is onderweg x
+More information will follow as soon as possible.
